@@ -1,3 +1,0 @@
-# Santiago Jose Maldonado
-
-Personal Page in Progress...
